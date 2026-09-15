@@ -1,0 +1,1 @@
+# skillzeno-task2-smart-automation
